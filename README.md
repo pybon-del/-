@@ -2,4 +2,4 @@
 tg @asix24           
 tgc инфо https://t.me/+MbRvpAeR2Dc2M2I6
 
-
+буду рада новым знакомствам 
